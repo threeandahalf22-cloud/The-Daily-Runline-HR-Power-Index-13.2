@@ -1,0 +1,1 @@
+# The-Daily-Runline-HR-Power-Index-13.2
